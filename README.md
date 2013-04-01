@@ -1,4 +1,7 @@
 gimmeyourrecipe
 ===============
 
-Last Saturday we had a great dinner and I enjoyed everything I ate so I definitely need your recipes ^___^
+A nice place to share recipes
+^_____^
+
+Original (== in french) version here : http://labonnepate.tumblr.com/
